@@ -1,1 +1,1 @@
-# EAFF
+# Elevate Asian Financial Futures
